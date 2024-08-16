@@ -3,7 +3,7 @@ Sou estudande da escola E.E Governador Mario covas
 Gosto de joga de Basquete e futebool
 Tenho um sonho e ser um jogando de basquete e criar minhas propra Empresas
 gosto muito de fazer alura 
-e Quero fazer facudade de ti e ter um trabalho bom até eu virar um jogador e Tambem a ajudar a minhar mãe e meu pau e casa
+e Quero fazer facudade de ti e ter um trabalho bom até eu virar um jogador e Tambem a ajudar a minhar mãe e meu pai e casa
 
 
 
